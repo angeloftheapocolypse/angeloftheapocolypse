@@ -5,7 +5,9 @@
 DO YOU RECALL THE ALLEGORY OF THE CAVE, DEAREST OBSERVER FROM BEYOND?
 
 Hello everybody, it is I, Hereticus Novi Orbis: Jester. 
-      C+H freely! Ships are fine, but please try not to smother me and force your ship on me. 
+      C+H freely! 
+             Ships are fine, but please try not to smother me and force your ship on me. 
+             
 Regarding ships with Dottore skins: I'd prefer to keep it to Dottolone/Panttore, just a preference.
 
 DNI: - Yumeshippers that force it onto me, your all good as long as your not shoving it down my throat. 
