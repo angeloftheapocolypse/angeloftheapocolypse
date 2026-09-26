@@ -8,8 +8,6 @@ Hello everybody, it is I, Hereticus Novi Orbis: Jester.
       C+H freely! Ships are fine, but please try not to smother me and force your ship on me. 
 Regarding ships with Dottore skins: I'd prefer to keep it to Dottolone/Panttore, just a preference.
 
-<img width="480" height="242" alt="Crow GIF" src="https://github.com/user-attachments/assets/55264b16-975d-4b89-bdd4-5ae38d27c612" />
-
 DNI: - Yumeshippers that force it onto me, your all good as long as your not shoving it down my throat. 
      - MinorxAdult shippers
      - People that cause unneccesary drama, if you have thoughts about me, keep it to yourself.
@@ -18,6 +16,8 @@ DNI: - Yumeshippers that force it onto me, your all good as long as your not sho
 
 Interacting: All interactions are fine, come up to me and chat, I will often be with friends, or afk. If I don't respond I'm overwhelmed or again, afk. Just dont be weird. Please refrain from covering me with chats and anything else, I freely hide others because of this.
 
-I hide freely, especially if your ass is covering me.
+ <img width="735" height="736" alt="1910f5e9047666fa9d31da626fc2062d" src="https://github.com/user-attachments/assets/5e3d3ceb-edc5-4d58-8d2c-00e08adbd1ff" />
+
+
 <!--
 **angeloftheapocolypse/angeloftheapocolypse** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
