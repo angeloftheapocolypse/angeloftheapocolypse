@@ -8,7 +8,7 @@ Hello everybody, it is I, Hereticus Novi Orbis: Jester.
       C+H freely! Ships are fine, but please try not to smother me and force your ship on me. 
 Regarding ships with Dottore skins: I'd prefer to keep it to Dottolone/Panttore, just a preference.
 
-<img width="540" height="240" alt="<img width="540" height="240" alt="tumblr_46c9c45f02c87600b9b77c4d967ab20b_d4e8347c_540" src="https://github.com/user-attachments/assets/a1419c46-0266-4913-9f4d-64c118f38ffa" />" />
+<img width="540" height="240" alt="<img width="540" height="240" alt="https://giphy.com/gifs/genshin-crow-dottore-iq-tRS7aURg58fOWN6iJv" />" />
 
 DNI: - Yumeshippers that force it onto me, your all good as long as your not shoving it down my throat. 
      - MinorxAdult shippers
