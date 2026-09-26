@@ -4,19 +4,30 @@
 
 DO YOU RECALL THE ALLEGORY OF THE CAVE, DEAREST OBSERVER FROM BEYOND?
 
-Hello everybody, it is I, Hereticus Novi Orbis: Jester. 
-      C+H freely! 
+            Hello everybody, it is I, Hereticus Novi Orbis: Jester. 
+            C+H freely! 
              Ships are fine, but please try not to smother me and force your ship on me. 
              
 Regarding ships with Dottore skins: I'd prefer to keep it to Dottolone/Panttore, just a preference.
 
-DNI: - Yumeshippers that force it onto me, your all good as long as your not shoving it down my throat. 
+      DNI: - Yumeshippers that force it onto me, your all good as long as your not shoving it down my throat. 
      - MinorxAdult shippers
      - People that cause unneccesary drama, if you have thoughts about me, keep it to yourself.
      - DNI DOTTOBINA!! I SEE THEM AS SIBLINGS.
      - DO NOT COVER ME DO NOT COVER ME DO NOT COVER ME ISTG
 
 Interacting: All interactions are fine, come up to me and chat, I will often be with friends, or afk. If I don't respond I'm overwhelmed or again, afk. Just dont be weird. Please refrain from covering me with chats and anything else, I freely hide others because of this.
+
+      PERSONAL HEADCANONS WITH DOTTORE/WEBTORRE:
+             - Omega has a huge sweet tooth, and can be persuaded easily if sweets are involved.
+             - Omega believes his human emotions are fleeting, and too mortal for his own good, so he often hides them.
+             - Omega when ascended to the Heretic of the False Moon, cut off his dick as a practice of escaping mortality.
+      WEBTORRE:
+             - Webtorre is MADLY obsessed with ruin machinery. (He has a body pillow and a whole shrine, probably.) 
+             - Webtorre doesn't shower that often, hes a bit stinky.
+             - Webtorre, despite kind of being a creep, has 0 care for sexual stuff, and is NOT a pervert. He does everything in light of his 'research' Aka his       prized ruin guards.
+             - Webtorre experiences episodes of deep depression, wondering why humanity rejected him, and how he can become better, but later thinks this thought stupid.
+             - Webtorre has a HUGE ego, but it is quite fragile, and he can easily be knocked down by a few well-placed insults.
 
  <img width="735" height="736" alt="1910f5e9047666fa9d31da626fc2062d" src="https://github.com/user-attachments/assets/5e3d3ceb-edc5-4d58-8d2c-00e08adbd1ff" />
 
